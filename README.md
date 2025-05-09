@@ -1,2 +1,2 @@
 # darianna-perez
-Actriz Darianna Perez 
+Actriz 
